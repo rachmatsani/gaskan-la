@@ -1,0 +1,2 @@
+# gaskan-la
+bahas woybahasa
